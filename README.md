@@ -10,7 +10,7 @@ Det er helt normalt at kroppen forandrer seg med alderen. Testosteronnivåene ka
 
 Nei — ikke nødvendigvis.
 
-**✅**[**Offisiell Nettside**](https://www.facebook.com/MANERGY.Male.Enhancement.Gummies.Norge/) 
+**✅**[**Offisiell Nettside**](https://sites.google.com/view/manergy-no/home) 
 
 **Manergy Male Enhancement Gummies** er et naturlig kosttilskudd som er laget spesielt for menn som ønsker å ta tilbake energien sin, øke utholdenheten og støtte den generelle vitaliteten — på en trygg og naturlig måte.
 
